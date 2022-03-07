@@ -17,3 +17,9 @@
 
 #### How do these tools shape the way you write (e.g., constrain the way you write or facilitate your writing)?
 
+## Week 2
+
+### How is electronic literature different from print literature?
+
+### What are some of the qualities of electronic literature?
+
