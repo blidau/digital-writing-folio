@@ -23,3 +23,10 @@
 
 ### What are some of the qualities of electronic literature?
 
+## Taroko Gorge Remixes
+
+### What aspects of the remix are the same?
+
+### What aspects of the remix are different?
+
+### Is the remix successful (why or why not)?
