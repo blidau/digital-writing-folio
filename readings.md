@@ -1,3 +1,0 @@
-# Readings
-
-## Week 1
